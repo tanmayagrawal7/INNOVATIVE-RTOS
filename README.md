@@ -9,4 +9,4 @@ Contact
 -------
 For any query you can contact me via e-mail my email ID is
 amitrawat10@gmail.com
- 
+ tanmayagrawal7@gmail.com
